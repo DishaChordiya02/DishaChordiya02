@@ -4,7 +4,7 @@
 
 🌐 Social Acc reach me:
 
-LinkedIn: https://www.linkedin.com/in/disha-chordiya-3b04a6287 
+LinkedIn: https://www.linkedin.com/in/dishachordiya/
 
 Email Id: dishachordiya212@gmail.com
 
