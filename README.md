@@ -6,6 +6,6 @@
 
 LinkedIn: https://www.linkedin.com/in/dishachordiya/
 
-Email Id: dishachordiya212@gmail.com
+Email Id: dishachordiya02@gmail.com
 
 💻 Tech Stack: #learning Mode *PYTHON *MYSQL *PANDAS *NUMPY *MATPLOTLIB 
